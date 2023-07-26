@@ -1,2 +1,0 @@
-# servyou
-pay and prioritize
